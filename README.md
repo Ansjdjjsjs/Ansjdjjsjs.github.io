@@ -1,1 +1,17 @@
-# Ansjdjjsjs.github.io
+# pakistan 
+
+
+
+
+
+
+
+
+
+hacked by @x_nicop
+
+
+
+
+
+king x_nicop
